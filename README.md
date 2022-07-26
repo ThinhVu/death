@@ -28,11 +28,12 @@ If there was no choice, then living a meaningful life is not a bad idea.
 
 However, is that enough?
 
-There are many people, living to the age of eighty and ninety, living their whole life to boredom, always just wanting to be liberated. But when standing on the threshold of death, they want to live.
+There are many people, living to the age of eighty and ninety, always just wanting to be liberated. But when faced with death, they yearn for life.
 
 Have any regrets? Yes.
 
 We hear too many times the saying "born from dust, return to dust".
+
 I was not born of dust. I have a father and mother, brothers and sisters, people who love me, and there are a things that I loved too.
 
 Is it regretful when those things leave us one by one, or do we leave them?.
